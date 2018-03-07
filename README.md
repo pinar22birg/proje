@@ -1,3 +1,3 @@
 # proje
 Bu rapor proje içindir.
-https://www.docdroid.net/Y3t6g53/analiz-raporu.pdf
+https://www.docdroid.net/VeKuQ3s/analiz-raporu.docx#page=6
